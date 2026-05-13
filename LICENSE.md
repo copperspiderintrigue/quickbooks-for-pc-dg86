@@ -1,4 +1,4 @@
-# 
+# updated QuickBooks for PC | QuickBooks for Windows Integration | user-permissions + bank-reconciliation offers the most advanced QuickBooks for PC | QuickBooks for Windows
 
 
 
